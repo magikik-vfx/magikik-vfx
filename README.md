@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @magikik-vfx
 - 👀 I’m interested in procedural stuff and fx, especially in Houdini
-- 🌱 I’m currently learning ...
+- 🌱 I aspire to learn more every day and I'm not about to stop. 
 - 💞️ I’m looking to collaborate on vfx projects
 - 📫 How to reach me : https://www.linkedin.com/in/kimie-maingonnat/ 
 
